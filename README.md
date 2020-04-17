@@ -1,0 +1,2 @@
+# Homeopathic-clinic
+Dr. Harpreet Kaur Chhabra founder  and owner of the clinic, is leading homeopathic doctors in Pune. Doctors is practicing homeopathy for over 5+ year;&amp; specialized in treating both acute and chronic diseases. If you are looking for homeopathy clinic in wakad, Pune? Dr. Harpreet's Homeopathic Clinic is the Best Homeopathy clinic in Wakad [PCMC], Pune. Call for Appointment 09890889171
